@@ -1,1 +1,1 @@
-# SCA-19b
+# Yntymak
